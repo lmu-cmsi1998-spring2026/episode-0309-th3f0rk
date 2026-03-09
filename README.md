@@ -2,7 +2,7 @@
 ## Climbing Photos Repository
 
 ---
-This repository contains a collection of climbing photos from the past sorted by the general location/theme of the photo. **It is very coo!** _You will like it fore these reasons:_
+This repository contains a collection of climbing photos from the past sorted by the general location/theme of the photo. **It is very cool!** _You will like it fore these reasons:_
 
 1. its cool
 2. i said so

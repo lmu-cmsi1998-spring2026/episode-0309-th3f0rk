@@ -1,0 +1,1 @@
+This directory contains photos of cool stuff including my friends dog Rico, who is a very nice Rhodesian Ridgeback, who has a variety of objects including an open can of Yerba Mate Lemon Elation balanced precariously upon his very large square head.
