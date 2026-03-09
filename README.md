@@ -1,4 +1,4 @@
-# Malek Yehya - CMSI 1998 adteatadf
+# Malek Yehya - CMSI 1998
 ## Climbing Photos Repository
 
 ---
